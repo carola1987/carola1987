@@ -4,7 +4,7 @@
 - 💞️ Me gustaría ayudar a crear páginas web para emprendedores
 - 📫 Pueden contactarme al siguiente email: olivares.carolina1@gmail.com 
 - 😄 Me gusta mucho estar en constante aprendizaje. 
-- ⚡ Un dato curioso: fui diagnosticada recientemente con Tea y TDA, lo cual me define como una perdona muy estructurada a la que le gusta que las cosas se hagan de la mejor manera. 
+- ⚡ Un dato curioso: fui diagnosticada recientemente con Tea y TDA, lo cual me define como una persona muy estructurada a la que le gusta que las cosas se hagan de la mejor manera. 
 
 
 <!---
